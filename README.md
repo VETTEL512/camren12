@@ -1,5 +1,5 @@
 - 👋 Hi, I’m  Karen  mejor conocida como Lady, Camren, Vettel, entre otros muchos apodos. 
-- 👀  Aguante la Formula 1,  Selena gomez , Camila Cabello y Lauren Jauregui. Mis pasiones. 
+- 👀  Aguante la Formula 1,  Selena gomez , Camila Cabello y Tate Mcrae. Mis pasiones. 
 - 🌱 I’m currently learning  Desarrollo de Videojuegos.
 - 💞️ Ojala algun dia poder trabajar en una empresa de video juegos, mi sueño "Rockstar Games"
 - 📫 IG: Kaalopezsj TW:@kaarenloopezz TWITCH:  LadyKaren 
